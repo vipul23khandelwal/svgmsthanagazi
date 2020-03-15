@@ -1,6 +1,6 @@
 
 TITLE: 
-Swami Vivakanand Govt. Model School Ramgarh ,Alwar 301001 (Raj.)
+Swami Vivakanand Govt. Model School Thanagazi ,Alwar 301001 (Raj.)
 
 AUTHOR:
 DESIGNED & DEVELOPED by vipul khandelwal
